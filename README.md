@@ -7,8 +7,7 @@
  
 </p>
 
-Software engineer with 5+ years of professional experience committed to build intuitive solutions which solve everyday problems.<br> 
-Love to indulge in conversations about the Why's, What's and How's of a product.<br>
+Software professional love to build solutions for everyday problems.<br> 
 A technology enthusiast who loves to explore new technologies and leverage it to solve real-life problems.<br />
 <p align="left">
  
